@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Ticst
+- 👀 I’m interested in Games/Piracy
+- 🌱 I’m currently learning Coding in multiple languages
+- 📫 You can reac me on:
+- -Discord:{Ticst}#5658
+- -Instagram:@fulop177
